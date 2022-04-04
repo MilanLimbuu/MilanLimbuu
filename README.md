@@ -3,7 +3,9 @@
   <a href="https://www.linkedin.com/in/milanlimbu/" target="_blank">
   <img src="banner.jpeg" alt="my banner" width="100%"></a>
 </p>
-### Hi there 👋 
+
+# Hi there, I'm Milan certified CIPD profressional
+Attracting and Building World Class Talent 🚀 Tech Talent Partner @ FORM3 🕵️ 👋 
 
 <!--
 **MilanLimbuu/MilanLimbuu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
