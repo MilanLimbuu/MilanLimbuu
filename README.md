@@ -1,7 +1,7 @@
 
 <p align="center">
   <a href="https://www.linkedin.com/in/milanlimbu/" target="_blank">
-  <img src="images/banner.png" alt="my banner" width="100%"></a>
+  <img src="banner.jpeg" alt="my banner" width="100%"></a>
 </p>
 ### Hi there 👋 
 
