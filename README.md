@@ -18,9 +18,7 @@ As a polyglot talent advocate, I'm also a tech agnostic recruiter that is really
 
 Outside work in my spare time, you can see me (not specifically in this order) contributing to charities, unconditionally loving my Cavalier King Charles puppy “Prince”, reading life sciences books, playing guitar, basketball, singing, watching cosmos documentaries and fictional movies such as LOTR, Hobbit etc...🤔
 
-If you are blooooooody good at spying people like me then here are the links🕵
-
-## Keep in touch with me!
+## If you are blooooooody good at spying people like me then here are the links🕵!
 <br/>
 
 <a href="https://twitter.com/milanlimbu1993" target="_blank">
