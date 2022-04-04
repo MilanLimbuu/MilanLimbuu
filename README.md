@@ -20,7 +20,7 @@ Outside work in my spare time, you can see me (not specifically in this order) c
 
 If you are blooooooody good at spying people like me then here are the links🕵
 
-## Keep in touch with me! 💌
+## Keep in touch with me!
 <br/>
 
 <a href="https://twitter.com/milanlimbu1993" target="_blank">
