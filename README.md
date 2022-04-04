@@ -7,7 +7,7 @@
 # Namaste 🙏 I'm Milan Limbu Certified CIPD Level 7 Profressional 🕵️ 👋
 Attracting and Building World Class Talent 🚀 Tech Talent Partner @ [Form3](https://www.form3.tech/) 🕵
 
-## Me, Myself and I 🤪
+## Me, Myself and I 👋 🤪
 
 TL;DR: Inherently curious, nerdy mind, ambivert by heart, always looking to learn and evolve beyond space, time and infinities
 
