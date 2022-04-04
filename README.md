@@ -4,10 +4,11 @@
   <img src="banner.jpeg" alt="my banner" width="100%"></a>
 </p>
 
-# Hi there, I'm Milan certified CIPD profressional
-Attracting and Building World Class Talent 🚀 Tech Talent Partner @ [Form3](https://www.form3.tech/) 🕵️ 👋 
+# Milan Limbu Certified CIPD profressional 🕵️ 👋
+Attracting and Building World Class Talent 🚀 Tech Talent Partner @ [Form3](https://www.form3.tech/) 🕵
 
-## Spy me here
+## Inherently curious, nerdy mind, ambivert by heart, always looking to learn and evolve beyond space, time and infinities
+
 Coming approximately 4,572 miles🇳🇵 (what Google reckons...) from the Land of the Himalayas ⛰️, it has been one heck of a journey...🚶‍♂️
 
 Ever since my uni days, I've always wanted a career that allowed me to really connect with people and manage the relationships involved. This is when I became really fascinated with my first recruitment job as it gave me all the hard exposure that I needed. However, feeling dubious & prosaic 💭 by the bizarre world of agency recruitment...I succumbed and came to an enlightenment that I wanted to work in an internal agile environment where businesses, candidates/clients rapport, core values can be built, managed and perpetuated in a qualitative way 🕴️
