@@ -7,7 +7,9 @@
 # Milan Limbu Certified CIPD profressional 🕵️ 👋
 Attracting and Building World Class Talent 🚀 Tech Talent Partner @ [Form3](https://www.form3.tech/) 🕵
 
-## Inherently curious, nerdy mind, ambivert by heart, always looking to learn and evolve beyond space, time and infinities
+## Me, Myself and I 🤪
+
+TL;DR: Inherently curious, nerdy mind, ambivert by heart, always looking to learn and evolve beyond space, time and infinities
 
 Coming approximately 4,572 miles🇳🇵 (what Google reckons...) from the Land of the Himalayas ⛰️, it has been one heck of a journey...🚶‍♂️
 
