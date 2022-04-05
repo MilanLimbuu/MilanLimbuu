@@ -4,7 +4,7 @@
   <img src="banner.jpg" alt="my banner" width="100%"></a>
 </p>
 
-# Namaste 🙏 I'm Milan Limbu 👉 Certified CIPD Level 7 Profressional
+# Namaste 🙏 I'm Milan Limbu 👉 Certified CIPD Level 7 Professional
 Attracting and Building World Class Talent 🚀 Tech Talent Partner @ [Form3](https://www.form3.tech/) 🕵
 
 ## Me, Myself and I 👋 🤪
