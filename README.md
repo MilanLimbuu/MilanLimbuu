@@ -5,7 +5,7 @@
 </p>
 
 # Namaste 🙏 I'm Milan Limbu 👉 Certified CIPD Level 7 Professional
-Attracting and Building World Class Talent 🚀 Tech Talent Partner @ [Form3](https://www.form3.tech/) 🕵
+Attracting and Building World Class Talent 🚀 Senior Talent Partner @ [Form3](https://www.form3.tech/) 🕵
 
 ## Me, Myself and I 👋 🤪
 
