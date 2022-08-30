@@ -33,7 +33,8 @@ Outside work in my spare time, you can see me (not specifically in this order) c
 
 <br/>
 
->### About Form3:unicorn_face:
+**>### About Form3:unicorn_face:**
+
 Cloud-native payments pioneers. We are building the technology that will power the future of payments.<br>
 <!-- Add anything to say to candidates below-->
 - [Our stack](https://stackshare.io/form3/main) Go, K8s, NATS, CockroachDB, Multi-cloud
